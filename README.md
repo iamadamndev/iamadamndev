@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @iamadamndev
+- 👀 I’m not interested
+- 🌱 I’m not currently learning
+- 💞️ I’m not looking to collaborate
+- 📫 Do not try to reach me
